@@ -1,0 +1,2 @@
+# Toată lumea în colhoz
+
