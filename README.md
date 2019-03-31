@@ -20,7 +20,5 @@ ISBN 5-376-01218-2
 
 {% hint style="info" %}
 © P. N. Carp, 199???
-
-TODO: Check year test
 {% endhint %}
 
