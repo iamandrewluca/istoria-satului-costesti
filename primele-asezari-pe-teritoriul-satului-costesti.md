@@ -35,3 +35,7 @@ Obiectele de lut erau foarte diverse: începînd cu vasele mari pentru produse �
 
 Totuși nu avem destule date pentru a determina gradul de dezvoltare a geților de aici. Probabil ei erau de acum la nivelul formării claselor și a statului.
 
+## Perioada de pînă la sec. XIV
+
+La sfîrșitul sec. III î. e. n. în regiunile date au loc invazii de la vest și est. Însă populația care trăia în reguinile pădurilor de centru, ca și la Costești, n-a fost distrusă. În secolul I î. e. n. are loc formarea uniunii de triburi geto-dace în frunte cu Burebista. Triburile de pe teritoriul satului Costești de azi posibil alcătuiau și ele o celulă a acestei uniunii, însă de date arheologice, pe care am putea să ne bazăm, nu dispunem, deoarece această așezare n-a fost studiată îndeajuns. Așa sau altfel sîntem nevoiți să rupem firul expunerii istorice la secolul III î. e. n.
+
